@@ -19,4 +19,4 @@ Many of our products are made from sustainable or recycled materials, reducing e
 
 Since 5 seconds ago, our products have sold millions, and we are happily a trusted company (lawsuits pending).
 
-Watch our YouTube: (https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+Watch our YouTube: [https://www.youtube.com/watch?v=dQw4w9WgXcQ]
